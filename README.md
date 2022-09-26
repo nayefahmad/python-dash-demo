@@ -6,4 +6,4 @@ Video part 1: https://youtu.be/XOFrvzWFM7Y.
 
 Video part 2: https://youtu.be/GlRauKqI08Y.
 
-Video part 3: coming soon.
+Video part 3: https://www.youtube.com/watch?v=L_KlPZ5qBOU
